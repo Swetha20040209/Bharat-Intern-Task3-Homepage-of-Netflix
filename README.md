@@ -1,1 +1,0 @@
-# Bharat-Intern-Task3-Homepage-of-Netflix
